@@ -14,7 +14,7 @@ These asks help put numbers around recent employee concerns in regards to pace o
   4. There are just over 1,550 employees eligible for the mentorship program.
   
   ## Summary ##
-Over 72,000 employees are prone to retirement.These rolls will need to be filled but the mentorship program contraints will need to be expanded as that provides only about 1,500 mentors to assist with filling these slots if a mentor-mentee ratio is 1:1. 
+Over 72,000 employees are prone to retirement.These positions will need to be filled but the mentorship program contraints will need to be expanded as the current eligibility provides only about 1,500 potential mentors to assist with filling these slots - a huge deficit if the mentor-mentee ratio is to be maintained at 1:1.
 
 
 
